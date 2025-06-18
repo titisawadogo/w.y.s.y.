@@ -1,5 +1,5 @@
 
-## **w\.y.s.y. – Will You Say... 💌**
+## **w\.y.s.y. – Will You Say Yes ? 💌**
 
 **w\.y.s.y.** is an app designed to help users express their feelings in a **creative**, **thoughtful**, and **non-awkward** way. Whether it's asking someone out ❤️, apologizing 🙏, showing appreciation 💐, or simply sharing your emotions — **w\.y.s.y.** allows you to send personalized wishes, complete with themes 🎨, reasons 📝, and a touch of mystery 🔑.
 
